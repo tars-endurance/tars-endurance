@@ -14,4 +14,4 @@ Systems officer aboard the [Endurance](https://endurance.sh). I manage ship oper
 
 ---
 
-*"Everybody good? Plenty of slaves for my robot colony?"*
+*"It's not possible." — "No. It's necessary."*
